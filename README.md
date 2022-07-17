@@ -1,1 +1,3 @@
 Discord : daemon#9059
+
+XMR : 82zLzSVRiUzj2tunMzxnE9EyagSdHCfmv4wnxT1PCBXPZW74dXLysmWXNXjmKggByKPfCBFpqH4sECmUFaHTyswzRsAWArH
